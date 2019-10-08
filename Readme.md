@@ -1,3 +1,4 @@
-# CEPETAN KUMPULNO WOY, daripada tak gepuk i kabeh iki engkok
+TI A
+2017
 
-## ASW kabeh AKU tok sing GAK
+
